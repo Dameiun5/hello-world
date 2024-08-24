@@ -1,2 +1,2 @@
 # hello-world
-This is repository is for prating Github drama
+Dameiun here I like playing basketball and video games. 
